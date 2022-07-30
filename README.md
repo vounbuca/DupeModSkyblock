@@ -1,2 +1,1 @@
-# DupeModSkyblock
-BEST UNDETECTABLE DUPE MOD IN SKYBLOCK!!!
+This is the most undetectable dupe mod in all of Hypixel Skyblock. With features like duping items effortlessly in less than minutes and gaining all the coins you need! All you need is to download the DupeMod-1.8.9.jar file and put it in ur description and youre done!
